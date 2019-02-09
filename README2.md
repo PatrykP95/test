@@ -1,0 +1,1 @@
+"werka to piekna kobieta" 
